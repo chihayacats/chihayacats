@@ -2,7 +2,7 @@
 
 ## <p align="center"> HII !! IM POYO !!!!!!!!  ⌒▽⌒
 <p align="center"> im 17, and i go by he she prns ~ IN(F) so9 FELV
-<p align="center"> im always sitting with hira and gracie in the hetalia section under the tree ^,^ anyone is allowed to talk and cuddle with us!!! we don't bite
+<p align="center"> im always sitting with hira and gracie in the hetalia section under the tree ^,^ anyone is allowed to talk and cuddle with us!!! we don't bite also im canadian 🇨🇦
   
 <p align="center">  me and hira 𑣲⋆
 <p align="center"> <img width="400" height="301" alt="norfin-norway" src="https://github.com/user-attachments/assets/b28a46ee-0d25-40d9-b00b-08a0cbe89564" />
